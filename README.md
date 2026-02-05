@@ -1,6 +1,4 @@
-
-https://headway.onelink.me/zG5O?c=WO%20Auto%20Login&deep_link_value=headway://auth/eyJhbGciOiJSUzI1NiIsInR5cCI6IkpXVCJ9.eyJpc3MiOiJib29rcy11c0BhcHBzcG90LmdzZXJ2aWNlYWNjb3VudC5jb20iLCJhdWQiOiJodHRwczovL2lkZW50aXR5dG9vbGtpdC5nb29nbGVhcGlzLmNvbS9nb29nbGUuaWRlbnRpdHkuaWRlbnRpdHl0b29sa2l0LnYxLklkZW50aXR5VG9vbGtpdCIsImV4cCI6MTczMTU4MDY0OSwiaWF0IjoxNzMxNTc3MDQ5LCJzdWIiOiJib29rcy11c0BhcHBzcG90LmdzZXJ2aWNlYWNjb3VudC5jb20iLCJ1aWQiOiJyTFNlMjQ2cDF3UzB3aXQzMG1YUmtKU0g4Z0gzIn0.M2pSzhCIwaUXnfwBFDAU5Kcc8x25zRc5JuRnnCt9BqFgbLunwinfwT5Bw8UDMl-_3OXCGfbUqcHPHcaRF0JoCRQyihRs8ToKmXemyd2e_HQJm3K2MCcIxexAGAVCypNe3ZtLgFWpCP0sJbdS2fu0F7LZg0Pzzon0JEd18OwkTfNcRcqfNLWO1I5_YqcIiWZYnKDky8b6YfXBLuxsUR-fjpPUfFzo2dJ8DZR33hnobC8QMJHlMi6LB4GypFtaV9FF53t_1HG-Nj_D-aXheSSu15PKsZ9F0H8y7gf_HMgzUbpC-5qBUfutLcYHTThE_wDi9h4ruLUZYMXazKB7Anc7Yw"
-
+https://headway.onelink.me/zG5O?c=WO%20Auto%20Login&deep_link_value=headway://auth/eyJ[…]S4FnptEVYDCQnj2c48z9oygGmWC8BvRSL5_IMkWSKNjwlZH-lhfAzU_8nTg
 
 Comment
 "We all know that a journey of a thousand miles starts with a single step. This program kicks you in the pants and gets you to move, little by little, towards where you want to be. I signed up because I'm writing a story that takes place at the circus. I thought maybe they've got quickly digested stuff about the circus, but no! And yet, there's valuable material about ""art is theft,"" and that is helping me deconstruct the influences behind what I'm crafting, and how to make them my own. 
